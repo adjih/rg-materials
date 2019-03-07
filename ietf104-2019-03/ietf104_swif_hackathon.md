@@ -12,7 +12,8 @@ Saturday and Sunday, March 3-4, 2018, starting at 9:00, Grand Ballroom
 * Marie-Jose (Saturday)
 * François
 * Kazuhisha ???
-* Cedric ???
+* Cedric
+* Oumaima Attia
 * ???
 
 ## General topics to be discussed and agreed on
